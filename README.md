@@ -1,0 +1,2 @@
+# belajar
+pemula nich
